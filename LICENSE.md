@@ -1,4 +1,4 @@
-
+elite king legacy Scripts is the best king legacy Script, featuring esp and infinite resources. Safe and powerful for all your needs.
 
 
 
